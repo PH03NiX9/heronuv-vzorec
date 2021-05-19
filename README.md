@@ -1,0 +1,1 @@
+# heronuv-vzorec
